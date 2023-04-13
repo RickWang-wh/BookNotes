@@ -14,8 +14,35 @@
 
 - Try to discern the **cause-and-effect patterns** behind the achievements.
 
-### MY CALL TO ADVENTURE
+### CHAPTER 1: MY CALL TO ADVENTURE
 - Great is better than terrible, and terrible is better than mediocre, because terrible at least gives life flavor.
 
-### CROSSING THE THRESHOLD
+### CHAPTER 2: CROSSING THE THRESHOLD
+
+#### MODELING MARKETS AS MACHINES
+- Visualizing complex systems as machines, figuring out the cause-effect relationships within them, writing down the principles for dealing with them, and feeding them into a computer.
+
+#### BUILDING THE BUSINESS
+- It's smarter to start with what you really want, which are your real goals, and then work back to what you need to attain them.
+- Money will be one of the things you need, but it's not the only one and certainly not the most important one once you get past having the amount you need to get what you really want.
+
+### CHAPTER 3: MY ABYSS
+
+#### A SILVER ROLLER COASTER
+- Timing is everything.
+
+#### FINDING A WAY PAST MY INTRACTABLE INVESTMENT PROBLEM
+- The brilliant trader and investor Bernard Baruch said:If you are ready to give up everything else and study the whole history and background of the market and all principal companies whose stocks are on the board as carefully as a medical student studies anatomy—if you can do all that and in addition you have the cool nerves of a gambler, the sixth sense of a clairvoyant and the courage of a lion, you have a ghost of a chance.
+- Imagine that in order to have a great life you have to cross a dangerous jungle. You can stay safe where you are and have an ordinary life, or you can risk crossing the jungle to have a terrific life. How would you approach that choice?
+- 
+1. Seek out the smartest people who disagreed with me so I could try to understand their reasoning.
+1. Know when not to have an opinion.
+2. Develop, test, and systemize timeless and universal principles.
+3. Balance risks in ways that keep the big upside while reducing the downside.
+- Beneficial change begins when you can acknowledge and even embrace your weaknesses.
+- You will think you have failed——but that won't be true unless you give up.
+- The most important thing you can do is to gather the lessons these failures provide and gain humility and radical open-mindedness in order to increase your chances of success. Then you press on.
+
+### CHAPTER 4: MY ROAD OF TRIALS
+- One of the most valuable thing you can do to improve for making decision making is to think through your principles for making decisions, write them out in both words and computer algorithms, back-test them if possible, and use them on a real-time basis to run in parallel with your brain's decision making.
 - 
