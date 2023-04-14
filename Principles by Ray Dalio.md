@@ -45,4 +45,10 @@
 
 ### CHAPTER 4: MY ROAD OF TRIALS
 - One of the most valuable thing you can do to improve for making decision making is to think through your principles for making decisions, write them out in both words and computer algorithms, back-test them if possible, and use them on a real-time basis to run in parallel with your brain's decision making.
+- If you work hard and creatively, you can have just about anything you want, but not everything you want.
+- **Maturity** is the ability to reject good alternatives in order to pursue even better ones.
+- Most people are more emotional than logical, they tend to overreact to short-term results.
+- Bad times coupled with good reflections provide some of the best lessons.
+- Making a handful of good uncorrelated bets that are balanced and leveraged well is the surest way of having a lot of upside without being exposed to unacceptable downside.
+- If something went badly, you hand to put it in the log, characterize its severity, and make clear who was responsible for it.
 - 
