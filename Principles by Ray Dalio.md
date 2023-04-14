@@ -51,4 +51,7 @@
 - Bad times coupled with good reflections provide some of the best lessons.
 - Making a handful of good uncorrelated bets that are balanced and leveraged well is the surest way of having a lot of upside without being exposed to unacceptable downside.
 - If something went badly, you hand to put it in the log, characterize its severity, and make clear who was responsible for it.
+
+### CHAPTER 6: RETURNING THE BOON
+- Life consists of three phases. In the first, we are dependent on others and we learn. In the second, others depend on us and we work. And in the third and last, when others no longer depend on us and we no longer have to work, we are free to savor life.
 - 
