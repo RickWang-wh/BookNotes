@@ -54,4 +54,70 @@
 
 ### CHAPTER 6: RETURNING THE BOON
 - Life consists of three phases. In the first, we are dependent on others and we learn. In the second, others depend on us and we work. And in the third and last, when others no longer depend on us and we no longer have to work, we are free to savor life.
-- 
+- The same types of people in the same types of circumstances are going to produce the same types of results.
+- A thirty-minute video [_How the Economic Mathine Works_](https://youtu.be/PHe0bXAIuk0)
+> Three main forces that drive the economy. 1) Productivity growth 2) The short term debt cycle 3) The long term debt cycle
+> The simplest part of the ecomomy: Transactions
+> A market consist all the buyers and all the sellers making transactions for the same thing.
+> Credit is the most important part of the economy.
+> **Spending drives economy.**
+> In an economy without credit, the only way to increase your spending is to produce more. But in an economy with credit, you can also increase your spending by borrowing.
+> The short term debt cycle typically lasts 5-8 years, and the long time debt cycle needs 75-100 years.
+> Three rules of thumb: 1) DON'T HAVE DEBT RISE FASTER THAN INCOME 2) DON'T HAVE INCOME RISR FASTER THAN PRODUCTIVITY 3) DO ALL THAT YOU CAN TO RAISE YOUR PRODUCTIVITY.
+- The books:**Heros with a Thousand Faces; The Lessons of History; Out of Eden; On the Role of the Individual in History.**
+- [Hero's way](./heros.png)
+
+### CHAPTER 8: LOOKING BACK FROM A HIGHER LEVEL
+- I realized that reality was, if not perfect, at least what we are given to deal with, so that any problems or frustrations I had with it were more productively directed to dealing with them effectively than coaplaining about them.
+- Instead of feeling frustrated or overwhelmed, I saw pain as nature's reminder that there is something important for me to learn.
+- I realized that all of them - like me, like everyone - make mistakes, struggle with their weaknesses, and don't feel that they are particularly special or great.They are no happier than the rest of us, and they struggle just as much or more than average folks. Even after they surpass their wildest dreams, they still experience more struggle than glory.
+- Having the basics - a good bed to sleep in, good relationships, good food, and good sex - is most important.
+
+
+**Look to the patterns of those thing that affect you in order to understand the cause-effect relationships that drive them and to learn principles for dealing with them effectively.**
+
+## Part II: Life Principles
+
+### 1. Embrace Reality and Deal with It
+> I have found it helpful to think of my life as if it were a game in which each problem I face is a puzzle I need to solve. By solving the puzzle, I get a gem in the form of a principle that helps me avoid the same sort of problem in the future.
+
+#### 1.1 Be a hyperrealist
+> The pursuit of dreams is what gives life its flavor.
+- a. Dreams + Reality + Determination = A Successful Life
+> People who achieve success and drive progress deeply understand the cause-effect relationships that govern reality and have principles for using them to get what they want.
+> Each of us needs to decide what we value most and choose the paths we take to achieve it.
+> Getting more out of life wasn't just a matter of working harder at it. It was much more a matter of working effectively, because working effectively could increase my capacity by hundreds of times.
+
+#### 1.2 Truth - or, more precisely, an accurate understanding of reality - is the essential foundation for any good outcome.
+> It's more important to understand and deal with the bad stuff since the good stuff will take care of itself.
+
+#### 1.3 Be radically open-minded and radically transparent
+- a. Radical open-mindedness and radical transparency are incaluable for rapid learning and effective change.
+> Learning is the product of a continuous real-time feedback loop in which we make decisions, see their outcomes, and improve our understanding of reality as a result.
+> The more open-minded you are, the less likely you are to deceive yourself——and the more like it is that others will give you honest feedback.
+> Being radically transparent and radically open-minded accelerates this learning process.
+- b. Don't let fears of what others think of you stand in your way.
+- c. Embracing radical truth and radical transparency will bring more meaningful work and more meaningful relationships.
+
+#### 1.4 Look to nature to learn how reality works
+> Seeing things from the rop down is the best way to understand ourselves and the laws of reality within the context of overarching universal laws.
+> To try to figure out the universal laws of reality and principles for dealing with it, I've found it helpful to try to look at things from nature's perspective.
+- a. Don't get hung up on your views of how things "should" be because you will miss out on learning how they really are.
+> **It's important not to let our biases stand in the way of our objectivity.**
+- b. To be "good" something must operate consistenetly with the laws of reality and contribute to the evolution of the whole; this is what is most rewarded.
+- c. Evolution is the single greatest foece in the universe; it is the only thing that is permanent and it drives everything.
+> Perfection doesn't exist.
+> Rather than getting stuck hiding our mistake and pretending we're perfect, it makes sense to find our imperfections and deal with them.
+- d. Evolve or die.
+> The key is to fail, learn, and improve quickly.
+
+#### 1.5 Evolving is life's greatest accomplishment and its greastest reward.
+
+
+### 2. Use the 5-Step Precess to Get What You Want Out if Life
+
+### 3. Be Radically Open-Minded
+
+### 4. Understand That People Are Wires Very Differently
+
+### 5. Learn How to Make Decisions Effectively
