@@ -55,7 +55,7 @@
 ### CHAPTER 6: RETURNING THE BOON
 - Life consists of three phases. In the first, we are dependent on others and we learn. In the second, others depend on us and we work. And in the third and last, when others no longer depend on us and we no longer have to work, we are free to savor life.
 - The same types of people in the same types of circumstances are going to produce the same types of results.
-- A thirty-minute video [_How the Economic Mathine Works_](https://youtu.be/PHe0bXAIuk0)
+- A thirty-minute video [_How the Economic Machine Works_](https://youtu.be/PHe0bXAIuk0)
 > Three main forces that drive the economy. 1) Productivity growth 2) The short term debt cycle 3) The long term debt cycle
 > The simplest part of the ecomomy: Transactions
 > A market consist all the buyers and all the sellers making transactions for the same thing.
