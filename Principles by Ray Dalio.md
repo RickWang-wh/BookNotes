@@ -112,9 +112,89 @@
 > The key is to fail, learn, and improve quickly.
 
 #### 1.5 Evolving is life's greatest accomplishment and its greastest reward.
+- a. The individual's incentives must be aligned with the group's goals.
+- b. Reality is optimizing for the whole——not for you.
+- c. Adaptation through rapid trial and error is invaluable.
+> Natural selection's trial-and-error process allows improvement without anyone understanding or guiding it. The same can apply to how you learn.
+> There are at least three kinds of learning that foster evolution: memory-based learning; subconscious learning; and "learning" that occurs without thinking at all.
+- d. Realize that you are simultaneously everything and nothing——and decide what you want to be.
+- e. What you will be will depend on the perspective you have.
 
+#### 1.6 Understand nature's practical lessons.
+- a. Maximize your evolution.
+> The things (toys, bigger houses, money, status, etc.) are just the bait. Chasing after them forces us to evolve, and it is the evolution and not the rewards themselves that matters to us and to those around us.
+> As Freud put it, "Love and work are the cornerstones of our humanness."
+- b. Remember "**no pain, no gain.**"
+> Nature gave us pain for a purpose. It alerts us and helps direct us.
+- c. It is a fundamental law of nature that in order to gain strength one has to push one's limits, which is painful.
+
+#### 1.7 Pain + Reflection = Progress
+> There is no avoiding pain, especially if you're going after ambitious goals.
+> The challenges you face will test and strengthen you.
+> As you climb above the blizzard of thingd that surrounds you, you will realize that they seem bigger than they really are when you are seeing them up close; that most things in life are just "**another one of those.**"
+- a. Go to the pain rather than avoid it.
+> Every time you confront something painful, you are at a potentially important juncture in your life——you have the opportunity to choose healthy and painful truth or unhealthy but confortable delusion.
+- b. Embrace tough love
+> If you can be open with your weaknesses it will make you freer and will help you deal with them better.
+> I urge you to not be embarrassed about your problems, recognizing that everyone has them. Bringing them to surface will help you break your bad habits and develop good ones, and you will acqire real strengths and justifiable optimism.
+> The quality of your life will depend on the choices you make at those painful moments.
+
+#### 1.8 Weigh second- and third- order consequences
+> Quite often the first-order consequences are the temptations that cost us what we really want, and sometimes they are the barriers that stand in out way.
+
+#### 1.9 Own your outcomes
+> "Whatever circumstances life brings you, you will be more likely to succeed and find happiness if you **take responsibility for making your decisions well instead of complaining about things being beyond your control.**"
+
+#### 1.10 Look at the machine from the higher level.
+> Higher-level thinking gives you the ability to study and influence the cause-effect relationships at play in your life and use them to get the outcomes you want.
+- a. Think of yourself as a machine operating within a machine and know that you have the ability to alter your machines to produce better outcomes.
+- b. By comparing your outcomes with your goals, you can determine how to modify your machine.
+[The Machine](./Machine.jpg)
+- c. Dinstinguish between you as the designer of your machine and you as a worker with your machine.
+- d. The biggest mistake most people make is to **not see themselves and others objectively, which leads them to bump into their own and others' weaknesses again and again.**
+- e. Successful people are those who can go above themselves to see things objectively and manage those things to shape change.
+> They can take in the perspectives of others instead of being trapped in their own heads with their own biases.
+> You shouldn't be upset if you find out that you're bad at something——you should be happy that you found out, because knowing that and dealing with it will improve your chances of getting what you want.
+> If you are disappointed because you can't be the best person to do everything yourself, you are terribly naive. Nobady can do everything weill.
+> Most of life's greastest opportunitues come out of moments of struggle.
+- f. Asking others who are strong in areas where you are weak to help you is a great skill that you should develop no matter what, as it will help you develop guardrails that will prevent you from doing what you shouldn't be doing.
+- g. Because it is difficult to see oneself objecticely, you need to **rely on the input of others and the whole body of evidence.**
+- h. If you are open-minded enough and determinded, you can get virtually anything you want.
+> 1. Don't confuse what you wish were true with what is really true.
+> 2. Don't worry about looking good——worry instead about achieving your goals.
+> 3. Don't overweight first-order consequences relative to second- and third-order ones.
+> 4. Don't let pain stand in the way of progress.
+> 5. Don't blame bad outcomes on anyone but yourself.
 
 ### 2. Use the 5-Step Precess to Get What You Want Out if Life
+> 1. Have clear goals.
+> 2. Identify and don't tolerate the problems that stand in the way of your achieving those goals.
+> 3. Accurately diagnose the problems to get at their root causes.
+> 4. Design plans that will get you around them.
+> 5. Do what's necessary to push these designs through to results.
+
+[The loop of the 5-step](./The%20loop.jpg)
+> To evolve quickly, you will have to do this fast and contunuously, setting your goals successively higher.
+> You will need to do all five steps well to be successful and you must do them one at a time and in order.
+> The process if iterative: doing each step thoroughly will provide you with the information you need to move on to the next step and do it well.
+> If your emotions are getting the better of you, step back and take time out until you can reflect clearly. If necessary, seek guidance from calm, thoughtful people.
+> You will never handle everything perfectly: Mistakes are inevitable and it's important to recognize and accept this fact of life.
+
+#### 2.1 Have clear goals.
+- a. Prioritize: While you can have virtually anything you want, you can't have everything you want.
+- b. Don't confuse goals with desires.
+> A proper goal is something that you really need to achieve.Desires are things that you want that can prevent you from reaching you goals.
+- c. Decide what you really want in life by reconciling your goals and your desires.
+- d. Don't mistake the trappings of success for success itself.
+- e. Never rule out a goal because you think it's unattainable.
+- f. Remember that great expectations creat great capabilities.
+> If you limit your goals to what you know you can achieve, you are setting the bar way too low.
+- g. Almost nothing can stop you from succeeding if you have a) flexibility and b) self-accountability.
+- h. Knowing how to deal well with your setbacks is as important as knowing how to move forward.
+> Your mission is to always make the best possible choices, knowing that you will be rewarded if you do.
+
+#### 2.2 Identify and don't tolerate problems.
+
 
 ### 3. Be Radically Open-Minded
 
