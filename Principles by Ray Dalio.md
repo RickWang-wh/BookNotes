@@ -10,7 +10,7 @@
 > 7. **The most important thing is that I develop my own principles and ideally write them down.**
 
 ## Part I: WHERE I'M COMING FROM
-> Time is like a river that carries us forward into encounters with reality that require us to make decisions. We can't stop our movement down this river and we can't avoid those encounters. We can only approach them in the best possible way. 
+> Time is like a river that carries us forward into encounters with reality that require us to make decisions. We can't stop our movement down this river and we can't avoid those encounters. We can only approach them in the best possible way.   
 
 - Try to discern the **cause-and-effect patterns** behind the achievements.
 
@@ -56,13 +56,13 @@
 - Life consists of three phases. In the first, we are dependent on others and we learn. In the second, others depend on us and we work. And in the third and last, when others no longer depend on us and we no longer have to work, we are free to savor life.
 - The same types of people in the same types of circumstances are going to produce the same types of results.
 - A thirty-minute video [_How the Economic Machine Works_](https://youtu.be/PHe0bXAIuk0)
-> Three main forces that drive the economy. 1) Productivity growth 2) The short term debt cycle 3) The long term debt cycle
-> The simplest part of the ecomomy: Transactions
-> A market consist all the buyers and all the sellers making transactions for the same thing.
-> Credit is the most important part of the economy.
-> **Spending drives economy.**
-> In an economy without credit, the only way to increase your spending is to produce more. But in an economy with credit, you can also increase your spending by borrowing.
-> The short term debt cycle typically lasts 5-8 years, and the long time debt cycle needs 75-100 years.
+> Three main forces that drive the economy. 1) Productivity growth 2) The short term debt cycle 3) The long term debt cycle  
+> The simplest part of the ecomomy: Transactions  
+> A market consist all the buyers and all the sellers making transactions for the same thing.  
+> Credit is the most important part of the economy.  
+> **Spending drives economy.**  
+> In an economy without credit, the only way to increase your spending is to produce more. But in an economy with credit, you can also increase your spending by borrowing.  
+> The short term debt cycle typically lasts 5-8 years, and the long time debt cycle needs 75-100 years.  
 > Three rules of thumb: 1) DON'T HAVE DEBT RISE FASTER THAN INCOME 2) DON'T HAVE INCOME RISR FASTER THAN PRODUCTIVITY 3) DO ALL THAT YOU CAN TO RAISE YOUR PRODUCTIVITY.
 - The books:**Heros with a Thousand Faces; The Lessons of History; Out of Eden; On the Role of the Individual in History.**
 - [Hero's way](./heros.png)
@@ -84,8 +84,8 @@
 #### 1.1 Be a hyperrealist
 > The pursuit of dreams is what gives life its flavor.
 - a. Dreams + Reality + Determination = A Successful Life
-> People who achieve success and drive progress deeply understand the cause-effect relationships that govern reality and have principles for using them to get what they want.
-> Each of us needs to decide what we value most and choose the paths we take to achieve it.
+> People who achieve success and drive progress deeply understand the cause-effect relationships that govern reality and have principles for using them to get what they want.  
+> Each of us needs to decide what we value most and choose the paths we take to achieve it.  
 > Getting more out of life wasn't just a matter of working harder at it. It was much more a matter of working effectively, because working effectively could increase my capacity by hundreds of times.
 
 #### 1.2 Truth - or, more precisely, an accurate understanding of reality - is the essential foundation for any good outcome.
@@ -93,20 +93,20 @@
 
 #### 1.3 Be radically open-minded and radically transparent
 - a. Radical open-mindedness and radical transparency are incaluable for rapid learning and effective change.
-> Learning is the product of a continuous real-time feedback loop in which we make decisions, see their outcomes, and improve our understanding of reality as a result.
-> The more open-minded you are, the less likely you are to deceive yourself——and the more like it is that others will give you honest feedback.
+> Learning is the product of a continuous real-time feedback loop in which we make decisions, see their outcomes, and improve our understanding of reality as a result.  
+> The more open-minded you are, the less likely you are to deceive yourself——and the more like it is that others will give you honest feedback.  
 > Being radically transparent and radically open-minded accelerates this learning process.
 - b. Don't let fears of what others think of you stand in your way.
 - c. Embracing radical truth and radical transparency will bring more meaningful work and more meaningful relationships.
 
 #### 1.4 Look to nature to learn how reality works
-> Seeing things from the rop down is the best way to understand ourselves and the laws of reality within the context of overarching universal laws.
+> Seeing things from the rop down is the best way to understand ourselves and the laws of reality within the context of overarching universal laws.  
 > To try to figure out the universal laws of reality and principles for dealing with it, I've found it helpful to try to look at things from nature's perspective.
 - a. Don't get hung up on your views of how things "should" be because you will miss out on learning how they really are.
 > **It's important not to let our biases stand in the way of our objectivity.**
 - b. To be "good" something must operate consistenetly with the laws of reality and contribute to the evolution of the whole; this is what is most rewarded.
 - c. Evolution is the single greatest foece in the universe; it is the only thing that is permanent and it drives everything.
-> Perfection doesn't exist.
+> Perfection doesn't exist.  
 > Rather than getting stuck hiding our mistake and pretending we're perfect, it makes sense to find our imperfections and deal with them.
 - d. Evolve or die.
 > The key is to fail, learn, and improve quickly.
@@ -115,28 +115,28 @@
 - a. The individual's incentives must be aligned with the group's goals.
 - b. Reality is optimizing for the whole——not for you.
 - c. Adaptation through rapid trial and error is invaluable.
-> Natural selection's trial-and-error process allows improvement without anyone understanding or guiding it. The same can apply to how you learn.
+> Natural selection's trial-and-error process allows improvement without anyone understanding or guiding it. The same can apply to how you learn.  
 > There are at least three kinds of learning that foster evolution: memory-based learning; subconscious learning; and "learning" that occurs without thinking at all.
 - d. Realize that you are simultaneously everything and nothing——and decide what you want to be.
 - e. What you will be will depend on the perspective you have.
 
 #### 1.6 Understand nature's practical lessons.
 - a. Maximize your evolution.
-> The things (toys, bigger houses, money, status, etc.) are just the bait. Chasing after them forces us to evolve, and it is the evolution and not the rewards themselves that matters to us and to those around us.
+> The things (toys, bigger houses, money, status, etc.) are just the bait. Chasing after them forces us to evolve, and it is the evolution and not the rewards themselves that matters to us and to those around us.  
 > As Freud put it, "Love and work are the cornerstones of our humanness."
 - b. Remember "**no pain, no gain.**"
 > Nature gave us pain for a purpose. It alerts us and helps direct us.
 - c. It is a fundamental law of nature that in order to gain strength one has to push one's limits, which is painful.
 
 #### 1.7 Pain + Reflection = Progress
-> There is no avoiding pain, especially if you're going after ambitious goals.
-> The challenges you face will test and strengthen you.
+> There is no avoiding pain, especially if you're going after ambitious goals.  
+> The challenges you face will test and strengthen you.  
 > As you climb above the blizzard of thingd that surrounds you, you will realize that they seem bigger than they really are when you are seeing them up close; that most things in life are just "**another one of those.**"
 - a. Go to the pain rather than avoid it.
 > Every time you confront something painful, you are at a potentially important juncture in your life——you have the opportunity to choose healthy and painful truth or unhealthy but confortable delusion.
 - b. Embrace tough love
-> If you can be open with your weaknesses it will make you freer and will help you deal with them better.
-> I urge you to not be embarrassed about your problems, recognizing that everyone has them. Bringing them to surface will help you break your bad habits and develop good ones, and you will acqire real strengths and justifiable optimism.
+> If you can be open with your weaknesses it will make you freer and will help you deal with them better.  
+> I urge you to not be embarrassed about your problems, recognizing that everyone has them. Bringing them to surface will help you break your bad habits and develop good ones, and you will acqire real strengths and justifiable optimism.  
 > The quality of your life will depend on the choices you make at those painful moments.
 
 #### 1.8 Weigh second- and third- order consequences
@@ -153,9 +153,9 @@
 - c. Dinstinguish between you as the designer of your machine and you as a worker with your machine.
 - d. The biggest mistake most people make is to **not see themselves and others objectively, which leads them to bump into their own and others' weaknesses again and again.**
 - e. Successful people are those who can go above themselves to see things objectively and manage those things to shape change.
-> They can take in the perspectives of others instead of being trapped in their own heads with their own biases.
-> You shouldn't be upset if you find out that you're bad at something——you should be happy that you found out, because knowing that and dealing with it will improve your chances of getting what you want.
-> If you are disappointed because you can't be the best person to do everything yourself, you are terribly naive. Nobady can do everything weill.
+> They can take in the perspectives of others instead of being trapped in their own heads with their own biases.  
+> You shouldn't be upset if you find out that you're bad at something——you should be happy that you found out, because knowing that and dealing with it will improve your chances of getting what you want.  
+> If you are disappointed because you can't be the best person to do everything yourself, you are terribly naive. Nobady can do everything weill.  
 > Most of life's greastest opportunitues come out of moments of struggle.
 - f. Asking others who are strong in areas where you are weak to help you is a great skill that you should develop no matter what, as it will help you develop guardrails that will prevent you from doing what you shouldn't be doing.
 - g. Because it is difficult to see oneself objecticely, you need to **rely on the input of others and the whole body of evidence.**
@@ -174,10 +174,10 @@
 > 5. Do what's necessary to push these designs through to results.
 
 [The loop of the 5-step](./The%20loop.jpg)
-> To evolve quickly, you will have to do this fast and contunuously, setting your goals successively higher.
-> You will need to do all five steps well to be successful and you must do them one at a time and in order.
-> The process if iterative: doing each step thoroughly will provide you with the information you need to move on to the next step and do it well.
-> If your emotions are getting the better of you, step back and take time out until you can reflect clearly. If necessary, seek guidance from calm, thoughtful people.
+> To evolve quickly, you will have to do this fast and contunuously, setting your goals successively higher.  
+> You will need to do all five steps well to be successful and you must do them one at a time and in order.  
+> The process if iterative: doing each step thoroughly will provide you with the information you need to move on to the next step and do it well.  
+> If your emotions are getting the better of you, step back and take time out until you can reflect clearly. If necessary, seek guidance from calm, thoughtful people.  
 > You will never handle everything perfectly: Mistakes are inevitable and it's important to recognize and accept this fact of life.
 
 #### 2.1 Have clear goals.
@@ -194,6 +194,58 @@
 > Your mission is to always make the best possible choices, knowing that you will be rewarded if you do.
 
 #### 2.2 Identify and don't tolerate problems.
+- a. View painful problems as potential improvements that are screaming at you.
+> Each and every problem you encounter is an opportunity.  
+> It's essential that you bring them to the surface. Most people don't like to do this, especially if it exposes their own weaknesses or the weaknesses of someone they care about, but successful people know they have to.
+- b. Don't avoid confronting problems because they are rooted in harsh realities that are unpleasant to look at.
+> Thinking about problems that are difficult to solve may make you anxious, but _not_ thinking about them should make you more anxious still.
+> Acknowledging your weaknesses is not the same as surrendering to them.
+- c. Be specific in identifying your problems.
+- d. Don't mistake a cause of a problem with the real problem.
+- e. Distinguish big problems from samll ones.
+- f. Once you identify a problem, don't tolerate it.
+> Tolerating a problem has the same consequences as failing to identify it.  
+> You need to develop a fierce intolerance of badness of any kind, regardless of its severity.
+
+#### 2.3 Diagnose problems to get at their root causes.
+- a. Focus on the "what is" before deciding "what to do about it."
+> Strategic thinking requires both diagnosis and design.
+- b. Distinguish proximate causes from root causes.
+> Proximate causes are typically the actions that lead to problems, so they are described with verbs. Root causes run much deeper and they are typically described with adjectives.
+> You can truly solve your problems by removing their root causes.
+- c. Recognize that knowing what someone (including you) is like will tell you what you can expect from them.
+> What differentiates people who live up to their potential from those who don't is their willingness to look at themselves and others objectively and understand the root causes standing in their way.
+
+#### 2.4 Design a plan
+- a. Go back before you go forward.
+- b. Think about your problem as a set of outcomes produced by a machine.
+- c. Remember that there are typically many paths to achieving your goals.
+- d. Think of your plan as being like a movie script in that you visualize who will do what through time.
+- e. Write down your plan for everyone to see and to measure your progress against.
+- f. Recognize that it doesn't take a lot of time to design a good plan.
+> A plan can be sketched out and refined in just hours or spread out over days or weeks. But the process is essential because it determines what you will have to do to be effective.  
+> **Designing precedes doing.**
+
+#### 2.5 Push through to completion
+- a. Great planners who don't execute their plans go nowhere.
+- b. Good work habits are vastly underrated.
+- c. Establish clear metrics to make certain that you are following your plan.
+
+> 1. Keep in mind that the 5 Steps are iterative. When you complete one step, you will have acquired information that will most likely lead you to modify the other steps.
+> 2. When you've completed all five, you'll start again with a new goal.
+> 3. If the process is working, your goals will change more slowly than your designs, which will change more slowly than your tasks.
+> 4. **You will need to synthesize and shape well.**
+
+#### 2.6 Remember that weaknesses don't matter if you find solutions.
+> **First and foremost, _have humility so you can get what you need from others._**  
+> Knowing what your weaknesses are and staring hard at them is the first step in the path to success.
+- a. Look at the patterns of your mistakes and identify at which step in the 5-Step Process you typically fail.
+- b. Everyone has at least one big thing that stand in the way of their success; find yous and deal with it.
+> Write down what your one big thing is and why it exists.  
+> There are two paths to success: 1) to have what you need yourself or 2) to getit from others.  
+> Humility is as important, or even more important, as having the strengths yourself.
+
+#### 2.7 Understand your own and others' mental maps and humility.
 
 
 ### 3. Be Radically Open-Minded
