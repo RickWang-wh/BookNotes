@@ -246,10 +246,78 @@
 > Humility is as important, or even more important, as having the strengths yourself.
 
 #### 2.7 Understand your own and others' mental maps and humility.
-
+> Humility can be even more valuable than having good mental maps if it leads you to seek out better answers than you could come up with on your own. Have both open-mindedness and good mental maps is most powerful of all.  
+> If you have good mental maps and low open-mindedness, that will be good but not great. You will still miss a lot that is of value. Similarly, if you have high open-mindedness but bad mental maps, you will probably have challenges picking the right people and points of view to follow. The person who has good mental maps and a lot of open-mindedness will always beat out the person who doesn't have both.
 
 ### 3. Be Radically Open-Minded
+**These barriers(your ego and your blind spots) exist because of the way that our brains work, so nearly everyone encounters them.**
+
+#### 3.1 Recognize your two barriers.
+> **The two biggest barriers to good decision making are _your ego and your blind spots._**  
+- a. Understand your ego barrier.
+- b. Your two "yours" fight to control you.
+> To be effective you must not let your need to be right be more important than your need to find out what's true. If you are too proud of what you know or of how good you are at something you will learn less, make inferior decisions, and fall short of your potential.
+- c. Understand your blind spot barrier.
+> When trying to figure things out, most people spin in their own heads instead of taking in all the wonderful thinking available to them.  
+> These two barriers-ego and blind spots-are teh fatal flaws that keep intelligent, hardworking people from libing up to their potential.
+
+#### 3.2 Practice radical open-mindedness.
+**To be radically open-minded you must:**
+- a. Sincerely believe that you might not know the best possible path and recognize that your ability to deal well with "not knowing" is more important than whatever it is you do know.  
+> Most people make bad decisions because **they are so certain that they're right that they don't allow themselves to see the better alternatives that exist.**  
+> You can't make a great decision without swimming for a while in a state of "not knowing".
+- b. Recognize that decision making is a two-step process: First take in all the relevant information, then decide.
+> Most people are reluctant to take in information that is inconsistent with what they have already concluded.
+- c. Don't worry about looking good; worry about achieving your goal.
+> People typically try to prove that they have the answer even when they don't.  
+- d. Realize that you can't put out without take in.
+> Most people seem much more eager to put out(convey their thinking and be productive) than to take in(learn).
+- e. Recognize that to gain the perspective that comes from seeing things through another's eyes, you must suspend judgment for a time——only by empathizing can you properly evaluate another point of view.
+> Open-mindedness doesn't mean going along with what you don't believe in; it means considering the reasoning of others instead of stubbornly and illogically holding in to your own point of view.
+- f. Remember that you're **looking for** the best answer, not simply the best answer that you can come up with yourself.
+> The answer doesn't have to be in your head; you can look outside yourself.  
+> It's invaluable to know what you don't know.
+- g. Be clear on whether you are arguing or seeking to understand, and thing about which is most appropriate based on your and others' believability.
+
+#### 3.3 Appreciate the art of thoughtful disagreement.
+> When two prople believe opposite things, chances are that one of them is wrong. It pays to find out if that someone is you.  
+> In thoughtful disagreement, your goal is not to convince the other party that you are right-it is to find out which view is true and decide what to do about it.  
+> Remember, you are not arguing; you are openly exploring what's true.  
+> It's pointless when people get angry with each other when they disagree because most disagreements aren't threats as much as opportunities for learning. People who change their minds because they learned something are the winners, whereas those who stubbornly refuse to learn are the losers.  
+> A good exercise to make sure that you are doing this(Be open-minded) well is to describe back to the person you are disagreeing with their own perspective.  
+> Working through disagreements does take time but it's just about the best way you can spend it. What's important is that you prioritize what you spend time on and who you spend it with.  
+> It doesn't pay to be open-minded with everyone. Instead, spend your time exploring ideas with the most believable people you have access to.  
+> Being able to thoughtfully disagree would so easily lead to radically improved decision making in all areas.
+
+#### 3.4 Triangulate you view with believable people who are willing to disagree
+- a. Plan for the worst-case scenario to make it as good as possible.
+
+### 3.5 Recognize the signs of closed-mindedness and open-mindedness that you should watch out for:
+- 1. Closed-minded people don't want their ideas challenged. While open-minded people are more curious about why there is disagreement.
+- 2. Closed-minded people are more likely to make statements than ask questions. Open-minded people genuinely believe they could be wrong; the questions that they ask are genuine.
+- 3. Closed-minded people focus much more on being understood than on understanding others. Open-minded people always feel compelled to see things through others' eyes.
+- 4. Closed-minded people say things like "I could be wrong...but here is my opinion." Open-minded people know when to make statements and when to ask questions.
+- 5. Closed-minded people block others from speaking. Open-minded people are always more interested in listening than in speaking; they encourage others to voice their views.
+- 6. Closed-minded people have trouble holding two thoughts simultaneously in their minds. Open-minded people can take in the thoughts of others without losing their ability to think well.
+- 7. Closed-minded people lack a deep sense of humulity. Open-minded people approach everything with a deep-seated fear that they may be wrong.
+
+#### 3.6 Understand how you can become radically open-minded.
+To practice open-mindedness:
+- a. Regularly use pain as your guide toward quality reflection.
+- b. Make being open-minded a habit.
+- c. Get to know your blind spots.
+> Take some time to record the circumstances in which you've consistently made bad decisions because you failed to see what others saw.
+- d. If a number of different believable people say you are doing something wrong and you are the only one who doesn't see it that way, assume that you are probably biased.
+> **Be objective!**
+- e. Meditate.
+> It helps slow things down so that I can act calmly even in the face of chaos, just like a ninja in a street fight.
+- f. Be evidence-based and encoutage others to be the same.
+- g. Do everything in your power to help others also be open-minded.
+- h. Use evidence-based decision-making tools.
+- i. Know when it's best to stop fighting and have faith in your decision-making process.
+> It's important that you think independently and fight for what you believe in, but there comes a time when it's wiser to stop fighting for your view and move on to accepting what believable others think is best.
 
 ### 4. Understand That People Are Wires Very Differently
+
 
 ### 5. Learn How to Make Decisions Effectively
