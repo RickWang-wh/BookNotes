@@ -318,6 +318,56 @@ To practice open-mindedness:
 > It's important that you think independently and fight for what you believe in, but there comes a time when it's wiser to stop fighting for your view and move on to accepting what believable others think is best.
 
 ### 4. Understand That People Are Wires Very Differently
+#### 4.1 Understand the power that comes from knowing how you and others are wired.
+> Everyone is like a LEGO set of attributes, with each piece reflecting the workings of a different part of their brain. All these pieces come together to determine what each person is like, and if you know what a person is like, you'll have a pretty good idea of what you can expect from them.
+- a. We are born with attributes that can both help us and hurt us, depending on their application.
+> Having expectation for people(including yourself) without knowing what they are like is a sure way to get in trouble.  
+#### 4.2 Meaningful work and meaningful relationships aren't just nice things we chose for ourselves——they are genetically programmed into us.
+- _The Spiritual Brain_
+#### 4.3 Understand the great brain battles and how to control them to get what "you" want.
+- a. Realize that the conscious mind is in a battle with the subconscious mind.
+> When thoughts and instructions come to me from my subconscious, rather than acting on them immediately, I have gotten into the habit of examining them with my conscious, logical mind.  
+- b. Know that the most constant struggle is between feeling and thinking.
+> You can also comfort yourself with the knowledge that whatever psycholigical pain you are experiencing will go away before very long.
+- c. Reconcile your feeling and your thinking.
+- d. Choose your habits well.
+> Habit is probably the most powerful rool in your brain's toolbox.  
+> Research suggests that if you stick with a behavior for approximately eighteen months, you will build a strong tendency to stick to it nearly forever.  
+> If you really want to change, the best thing you can do is choose which habits to acquire and which to get rid of and then go about doing that.  
+> The most valuable habit I've acquired is using pain to trigger quality reflections.  
+- e. Train your "lower-level you" with kindness and persistence to build the right habits.
+- f. Understand the differences between right-brained and left-brained thinking.
+> Realize that both ways of thinking are invaluable, and assign responsibilities accordingly.
+- g. Understand how much the brain can and cannot change.
+> Remember that accepting your weaknesses is contrary to the instincts of those illusion that you are perfect.
+#### 4.4 Find out what you and others are like.
+- a. Introversion vs. extroversion
+> Introverts focus on the inner world and get their energy from ideas, memories, and experiences while extroverts are externally focused and get their energy from being with people.
+- b. Intuiting vs. sensing.
+> Some people see big pictures(forests) and others see details(trees).  
+> The intuitive thinker's attention is focused on the context first and the details second.
+- c. Thinking vs. feeling
+> Some people make decisions based on logical analysis of objective facts, considering all the known, provable factors important to a given situation and using logic to determine the best course of action.  
+> Other people--who perfer feeling--focus on harmony between people.
+- d. Planning vs. perceiving.
+> Some people like to live in a planned, orderly way(Planners or Judgers) and others prefer flexibility and spontaneity(Perceivers).  
+- e. Creators vs. refiners vs. advancers vs. executors vs. flexors
+> * **Creators** generate new ideas and original concepts.
+> * **Adcancers** conmmunicate these new ideas and carry them forward.
+> * **Refiners** challenge ideas.
+> * **Executors** can also be thought of as **Implementers**. They ensure that important activities are carried out and goals accomplished; They are focused on details and the bottom line.
+> * **Flexors** are a combination of all four types.
+- f. Focusing on tasks vs. foucusing on goals.
+> Some people are focused on daily tasks while others are focused on their goals and how to achieve them. 
+- g. Workplace Personality Inventory.
+- h. Shapers are people who can go from visualization to actualization.
+> Shapers are someone who comes up with unique and valuable visions and builds them out beautifully, typically over the doubts of others.
+> Shapers = Visionary + Practical Thinker + Determined.  
 
+- Knowing how one is wires is a necessary first step in any life juorney.
+- Everyone has strengths and weaknesses, and everyone has an important role to play in life. Nature made everything and everyone for a purpose.
+- **The courage that's needed the most isn't the kind that drives you to prevail over others, but the kind that allows you to be true to your truest self, no matter what other people wat you to be.**
+
+#### 4.5 Getting the right people in teh right roles in support of your goal is the key to succeeding at whatever you choose to accomplish.
 
 ### 5. Learn How to Make Decisions Effectively
