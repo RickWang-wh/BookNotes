@@ -10,4 +10,5 @@
 - Habits aren't destiny. Habits can be ignores, changed, or replaces.
 - When a habit emerges, the brain stops fully participating in decision making.
 ## II. The craving brain - How to Creat New Habits
+- The psychology of human's habits is grounded in two basic rules: First, find a simple and obvious cue. Second, cleary define the rewards.
 
