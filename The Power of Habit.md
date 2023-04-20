@@ -9,3 +9,5 @@
 - Over time, the loop——**cue, routine, reward**; cue, routine, reward——becomes more and more automatic. The cue and reward become interwined until a powerful sense of anticicipation and craving emerges.
 - Habits aren't destiny. Habits can be ignores, changed, or replaces.
 - When a habit emerges, the brain stops fully participating in decision making.
+## II. The craving brain - How to Creat New Habits
+
