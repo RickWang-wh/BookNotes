@@ -371,3 +371,39 @@ To practice open-mindedness:
 #### 4.5 Getting the right people in teh right roles in support of your goal is the key to succeeding at whatever you choose to accomplish.
 
 ### 5. Learn How to Make Decisions Effectively
+> While there is no one best way to make decisions, there are some universal rules for good decision making.
+
+#### 5.1 Recognize that 1) the biggest threat to good decision making is harmful emotions, and 2) decision making is a two-step process (first learning and then deciding)
+> **Learning** must come before deciding.  
+> No matter how you acquire your knowledge or where you store it, what's most important is that what you know paints a true and rich picture of the realities that will affect your decision.  
+> Remind yourself that it's never harmful to at least hear an opposing point of view.  
+- LEARNING WELL
+> Getting an accurate picture of reality ultimately comes down to two things: being able to synthesize accurately and knowing how to navigate levels.  
+> Synthesis is the process of converting a lot of data into an accurate picture.  
+> To synthesize well, you must 1) synthesize the situation at hand, 2) synthesize the situation through time, and 3) navigate levels effectively.
+
+#### 5.2 Synthesize the situation at hand.
+**Remember:**
+- a. One of the most important decisions you can make is who you ask questions of.
+> Make sure they're fully informed and believable.  
+> Listening to uninformed people is worse than having no answers at all.
+- b. Don't believe everything you hear.
+> **Don't mistake opinions for facts.**
+- c. Everything looks bigger up close.
+- d. New is overvalued relative to great.
+> It is smarter to choose the great over the new.
+- e. Don't oversqueeze dots.
+> A dot is just one piece of data from one moment in time; keep that in perspective as you synthesize.
+
+#### 5.3 Synthesize the situation through time.
+- a. Keep in mind both the rates of change and the level of things, and the relationships between them.
+- b. Be imprecise.
+> When you ask someone whether something is true and they tell you that it not actually true, it's probably by-and-large true.
+- c. Remember the 80/20 Rule and know what the key 20 percent is.
+- d. Be an imperfectionist.
+> Perfectionists spend too much on little differences at the margins at the expense of the important things.  
+
+#### 5.4 Navigate levels effectively.
+- a. Use the terms "above the line" and "below the line" to establish which level a conversation is on.
+- b. Remember that decisions need to be made at the appropriate level, but they should also be consistent across levels.
+> It's necessary to: 1. Remember that multiple levels exist for all subjects. 2. Be aware on what level you're examinging a given subject. 3. Consciously navigate levels rather than see subjects as undofferentiated piles of facts that can be browsed randomly. 4. Diagram the flow of your thought processes using the outline template.  
