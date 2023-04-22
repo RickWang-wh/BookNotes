@@ -27,4 +27,10 @@
 ## PART TWO: The Habits of Successful Organizations
 
 ### IV: Keystone habits, or the ballad of Paul O'neill - which habits matter most
+> Some habits matter more than others in remaking businesses and lives. These are "keystone habits" and they can influence how people work, eat, play, live, spend, and communicate.  
+> The habits that matter most are the ones that, when they start to shift, dislodge and remake other patterns.  
 
+### V. Starbucks and the habit of success - When willpower becomes automatic.
+> Dozens of studies show that **willpower** is the single most important keystone habit for individual success.  
+> Self-discipline has a bigger effect on academic performance than does intellectual talent.  
+> 
