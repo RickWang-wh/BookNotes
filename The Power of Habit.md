@@ -33,4 +33,14 @@
 ### V. Starbucks and the habit of success - When willpower becomes automatic.
 > Dozens of studies show that **willpower** is the single most important keystone habit for individual success.  
 > Self-discipline has a bigger effect on academic performance than does intellectual talent.  
-> 
+> Willpower isn't just a skill. It's a muscle, like the muscles in your arms and legs, and it gets tired as it works harder.  
+> If you want to do something that requires willpower - like going for a run after work - you have to conserve your willpower muscle during the day.   
+> One of the systems the Starbucks use is called the LATTE method. They Listen to the customer, Acknowledge thrie complaint, Take Action by solving the problem, Thank them, and then Explain why the problem occurred.  
+> - This is how willpower becomes a habit: by choosing a certain behavior ahead of time, and then following that routine when an inflection point arrives.  
+
+### VI. The power of a crisis -  How leaders creat habits through accident and design. 
+> Crises are so valuable, in fact, that sometimes it's worth stirring up a sense of looming catastrophe rather than letting it die down.  
+> In fact, crises are such valuable opportunities that a wise leader often prolongs a sense of emergency on purpose.  
+
+### VII. How Target knows what you want before you do - When companies predict(and manipulate) habits.
+
