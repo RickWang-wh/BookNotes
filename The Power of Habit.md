@@ -44,3 +44,27 @@
 
 ### VII. How Target knows what you want before you do - When companies predict(and manipulate) habits.
 
+## PART THREE: The Habits of Societies.
+
+### VIII: Saddleback church and the montgomery bus boycott - How movements happen. 
+
+### IX: The neurology of free will - Are we responsible for our habits?
+
+## APPENDIX: A guide to using these ideas.
+
+- **The framework**
+- Identify the routine
+- Experiment with rewards
+- Isolate the cue
+> Almost all habitual cues fit into one of five categories:  
+> - Location  
+> - Time  
+> - Emotional state  
+> - Other people  
+> - Immiediately preceding action  
+- Have a plan
+> Once you've figured out your habit loop——you've identified the reward driving your behavior, the cue triggering it, and the routine itself——you can begin to shift the behavior.  
+> **What you need is a plan.**  
+> A habit is a formula our brain automatically follows: When I see CUE, I will do ROUTINE in order to get a REWARD.
+
+**THE END**
