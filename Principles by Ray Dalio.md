@@ -407,3 +407,59 @@ To practice open-mindedness:
 - a. Use the terms "above the line" and "below the line" to establish which level a conversation is on.
 - b. Remember that decisions need to be made at the appropriate level, but they should also be consistent across levels.
 > It's necessary to: 1. Remember that multiple levels exist for all subjects. 2. Be aware on what level you're examinging a given subject. 3. Consciously navigate levels rather than see subjects as undofferentiated piles of facts that can be browsed randomly. 4. Diagram the flow of your thought processes using the outline template.  
+
+#### 5.5 Logic, reason, and common sense are your best tools for synthesizing reality and understanding what to do about it.
+
+> As Carl Jung put it,"Until you make the unconscious conscious, it will direct your life and you will call it fate."  
+> Successful organizations have cultures in which evidence-based decision making is the norm rather than the exception.  
+
+#### 5.6 Make your decisions as expected value calculations.
+> As the saying goes,**"It never hurts to ask."**  
+- To help you make expected value calculations well, remember that:
+- a. Raising the probability of being right is valuable no matter what your probability of being right already is.  
+- b. Knowing when not to bet is as important as knowing what bets are probably worth making.  
+- c. **The best choices are the ones that have more pros than cons, not those that don't have any cons at all.**  
+
+#### 5.7 Prioritize by weighing the value of additional information against the cost of not deciding. 
+- People who prioritize well understand the following:
+- a. All of your "must-dos" must be above the bar before you do your "like-to-dos."
+- b. Chances are you won't have time to deal with the unimportant things, which is better than not having time to deal with the important things.
+- c. Don't mistake possibility for probalities.
+> - Anything si possible.
+> - It's the probalities that matter.
+> - Everything must be weighted in terms of its likelihood and prioritized.
+
+#### 5.8 Simplify!
+> As the saying goes,"Any damn fool can make it complex. It takes a genius to make it simple."
+
+#### 5.9 Use principles.
+> Using principles is a way of both simplifying and improving your decision making. 
+> - The key to doing this well is to:
+> 1. Slow down you thinking so you can note the criteria you are using to make your decision.
+> 2. Write the criteria down as a principle.
+> 3. Think about those criteria when you have an outcome to assess and refine them before the next "one of those" comes along.  
+> **Using a tool called a Coach, which is explained in the Appendix.**  
+
+#### 5.10 Believability weight you decision making
+- To do it well, be sure to _avoid_ the common perils of :
+- 1) valuing your own believability more than is logical
+- 2) not distinguishing between who is more or less credible.
+
+#### 5.11 Convert your principles into algorithms and have the computer make decisions alongside you.
+
+- Systemized and computerized decision making. 
+**Thinking -> Principles -> Algorithms**
+
+#### 5.12 Be cautious about trusting AI without having deep understanding.
+- In order to have the best life possible, you have to:
+- 1) know what the best decisions are
+- 2) have the courage to make them.
+
+#### Life principles: Putting it all together
+- It's essential that you **embrace reality and deal with it well.**
+- Making the most if your circumstances is what life is all about. This includes being transparent with your thoughts and open-mindedly accepting the feedback of others. Doing so will dramatically increase your learning.
+- The evolutionary process can be described as a 5-step process for getting what you want. It consists of setting goals, identifying and not tolerating problems, diagnosing problems, coming up with designs to get around them, and then doing the tasks required.
+- If you can learn radical open-mindedness and practice thoughtful disaggreement, you'll radically increase your learning. 
+- Your ability to get what you want when working with others who want the same things is much greater than your ability to get these things by yourself.
+
+## PART III: WORK PRINCIPLES
