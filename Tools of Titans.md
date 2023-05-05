@@ -50,7 +50,13 @@ investor is things that are out of consensus, something very much opposed to the
 > _Anything you want - Derek Sivers_  
 > _Seeking Wisdom: From Darwin to Munger - Peter Bevelin_  
 > _Awaken the Giant within - Tony Robbins_  
-
-
+- "If (more) information was the answer, then we'd all be billionaires with perfect abs." 
+- "How to thrive in an unknowable future? Choose the plan with the most options. The best plan is the one that lets you change your plans."
+- When you are earlier in your career, the best strategy is to just say "yes" to everything. Every little gig. You just never know what are the lottery tickets. 
+- Don't be a donkey. You can do everything you want to do, you just need foresight and patience. 
+- **Once you have some success —— if it't not a "Hell, yes!" it's a "NO".** 
+- **"Busy" = Out of control**
+- 
+ 
 
 
