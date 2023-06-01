@@ -12,3 +12,4 @@
 - Unlimited Power
 - Anything you want
 - The unfair advantage
+- 逃避自由
