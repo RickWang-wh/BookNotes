@@ -2,7 +2,9 @@
 - Tools of Giants
 - Principles
 - Awaken the giant within
-
+- 穷查理宝典
+- 资治通鉴
+- 江湖丛谈
 
 
 
