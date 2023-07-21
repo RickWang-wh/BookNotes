@@ -1,5 +1,7 @@
 # BookNotes
-### Welcome to fork this to copy the notes and pull requests :D
+### Welcome to fork this to copy the notes and pull requests :smile:
+
+### If you have any suggestions, click [here](./你的建议，请提交在这里~.md)  
 
 > - 非虚构类（中文版）  
 > [人类简史  *DONE*](./人类简史.md)  
