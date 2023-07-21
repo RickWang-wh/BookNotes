@@ -2,7 +2,7 @@
 ### Welcome to fork this to copy the notes and pull requests :D
 
 > - 非虚构类（中文版）  
-> [人类简史  *DONE*](../人类简史.md)  
+> [人类简史  *DONE*](./人类简史.md)  
 > [爱的艺术  *DONE*](../BookNotes/爱的艺术.md)  
 > [财富自由之路  *DONE*](../BookNotes/财富自由之路-李笑来.md)  
 > [穷查理宝典  *READING*](../BookNotes/穷查理宝典.md)  
