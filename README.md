@@ -18,15 +18,19 @@
 > [Principles  *READING*](./Principles%20by%20Ray%20Dalio.md)  
 > [Aweaken the Gient Within  *READING*](./Aweaken%20the%20Giant%20Within.md)  
 > [Beyond Feelings  *READING*](./beyond%20feelings.md)  
+> The 48 Laws of Power  *TODO*  
+> Unlimited Power  *TODO*  
+> Anything you want  *TODO*  
+> The unfair advantage  *TODO*  
 > ...
 > - 虚构类（中文版）  
-> 动物凶猛  DONE  
-> 一生  DONE  
-> 罗杰疑案  DONE  
-> 谁动了我的奶酪  DONE  
-> 鼠疫 READING  
-> 我用古典的方式爱过你  READING  
-> 大江东去  TODO  
+> 动物凶猛  *DONE*  
+> 一生  *DONE*  
+> 罗杰疑案  *DONE*  
+> 谁动了我的奶酪  *DONE*  
+> 鼠疫 *READING*  
+> 我用古典的方式爱过你  *READING*  
+> 大江东去  *TODO*  
 > ...
 > - 虚构类（英文版）
 > 
